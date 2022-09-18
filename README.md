@@ -1,2 +1,0 @@
-# depozit
-Care esti ma?
